@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hola, Buenas! 👋🏻Actualmente estoy cursando la carrera Tecnicatura en Desarrollo de Software <br>Me gustaría enfocarme en hacking ético y seguridad.<br> 🎸🎶🎹🎤 Me gusta mucho la Música, a veces compongo, trato de tocar la guitarra (en proceso), tocó el bajo.<br>Estoy aprendiendo a diseñar cómo profesional, en diseño y edición gráfico <br>Me gusta mucho lo de marketing digital y community manager. <br>Pronto quiero crear mi propia marca personal.<br>Trato de aprender algo nuevo siempre y explorar nuevas cosas<br>😎
+Hola, Buenas! 👋🏻Actualmente estoy cursando la carrera Tecnicatura en Desarrollo de Software <br>Me gustaría enfocarme en hacking ético y seguridad.<br> 🎸🎶🎹🎤 Me gusta mucho la Música, a veces compongo, trato de tocar la guitarra (en proceso), tocó el bajo.<br>Estoy aprendiendo a diseñar cómo profesional. Me gusta mucho lo de marketing digital y community manager. <br>Pronto quiero crear mi propia marca personal.<br>Trato de aprender algo nuevo siempre y explorar nuevas cosas<br>😎
 
 
 ## 🌐 Socials:
